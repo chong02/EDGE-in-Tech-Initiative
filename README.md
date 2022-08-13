@@ -1,1 +1,0 @@
-# EDGE-in-Tech-Initiative
